@@ -1,0 +1,1 @@
+# Trincentis-Apolice-Seguro
